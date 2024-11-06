@@ -10,3 +10,15 @@ and other stuff
 yeah uhh
 
 please play
+
+:)
+
+🥉
+
+the game is slay pookie
+
+uwu uwu uwu
+
+slay pookie
+
+👍 
